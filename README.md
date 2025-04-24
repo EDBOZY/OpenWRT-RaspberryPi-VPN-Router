@@ -129,7 +129,7 @@ After reboot:
 - 🔐 Cybersecurity Education
 
 Contact Information :
-1. Ben Tom Abey - 
+1. Ben Tom Abey - bentomabey12@gmail.com
 2. Gouri Nandana A - nandanagouri47@gmail.com
 3. Bennet Binu Varghese - 
 
