@@ -128,6 +128,9 @@ After reboot:
 - 👨‍👩‍👧 Parental Controls
 - 🔐 Cybersecurity Education
 
-
+Contact Information :
+1. Ben Tom Abey - 
+2. Gouri Nandana A - nandanagouri47@gmail.com
+3. Bennet Binu Varghese - 
 
 
